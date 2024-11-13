@@ -1,1 +1,12 @@
 # AA022024_Taller3_Grupo42
+
+# ------ Taller 3 ------
+## Integrantes:
+- 🔥 ALEXANDRA BEATRIZ AGUILAR GARCIA   00164722, SEC 01
+- 💪 ANTHONY ALEXANDER CANALES MARTINEZ 00093122, SEC 02
+- 😎 CARMEN ILBEA SANTACRUZ ROMERO      00509191, SEC 01
+
+## Cuenta con:
+1. -
+2. -
+3. -
